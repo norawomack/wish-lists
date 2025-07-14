@@ -1,20 +1,17 @@
 
-[text](link)	
- 
- Stuff:
 * [VR headset](https://www.amazon.com/gp/product/B0F5HJ9RGV/ref=ox_sc_act_title_1)
-* Google Cardboard
-* Fidget Toys
-* Alot of fidgets
-* REALLY want
-* Helmet
-* Football cards
+* [Google Cardboard](https://www.amazon.com/gp/product/B01C2PA0KK/ref=ox_sc_act_title_2)
+* [Fidget Toys](https://www.amazon.com/gp/product/B0DC69M33Y/ref=ox_sc_act_title_12)
+* [Alot of fidgets](https://www.amazon.com/gp/product/B07TT6664Z/ref=ox_sc_act_title_13)
+* [REALLY want](https://www.amazon.com/gp/product/B0CLTXXND8/ref=ox_sc_act_title_11)
+* [Helmet](https://www.amazon.com/gp/product/B0BNPSRYZ2/ref=ox_sc_act_title_12)
+* [Football cards](https://www.amazon.com/gp/product/B00KTARJKU/ref=ox_sc_act_title_2)
 	Pokemon cards:
-* Pokemon Cards
-* Pokemon Cards Again (Please get)
-* Good Stuff
-* More Pokemon cards
-* Jap. Pokemon cards
-* Psa Graded Card
-* Cool cheap cards
-* Buncha Packs
+* [Pokemon Cards](https://www.amazon.com/gp/product/B09Y3YT57P/ref=ox_sc_act_title_11)
+* [Pokemon Cards Again (Please get)](https://shinyvert.com/shop-all/p/pokemon-mystery-slab-poke-tier)
+* [Good Stuff](https://shinyvert.com/shop-all/p/sir-god-pack)
+* [More Pokemon cards](https://www.amazon.com/gp/product/B0DTGVK19J/ref=ox_sc_act_title_6)
+* [Jap. Pokemon cards](https://www.amazon.com/gp/product/B0D81JCZHY/ref=ox_sc_act_title_1)
+* [Psa Graded Card](https://www.amazon.com/gp/product/B09PQBM615/ref=ox_sc_act_title_5)
+* [Cool cheap cards](https://www.aliexpress.us/item/3256809011955741.html?spm=a2g0o.cart.shoppingCartRecommend.6.167638da0rpNCa&gps-id=shoppingCartRecommend&scm=1007.38724.434540.0&scm_id=1007.38724.434540.0&scm-url=1007.38724.434540.0&pvid=0bb8118d-b8ab-44c4-8503-da225ae6fa83&_t=gps-id:shoppingCartRecommend,scm-url:1007.38724.434540.0,pvid:0bb8118d-b8ab-44c4-8503-da225ae6fa83,tpp_buckets:668%232846%238114%231999&pdp_ext_f=%7B%22order%22%3A%222%22%2C%22eval%22%3A%221%22%2C%22sceneId%22%3A%223440%22%7D&pdp_npi=4%40dis%21USD%2147.04%212.05%21%21%21335.54%2114.65%21%402103241117525280555211246e6daa%2112000048270937563%21rec%21US%21%21ABXZ&utparam-url=scene%3AshoppingCartRecommend%7Cquery_from%3A)
+* [Buncha Packs](https://www.temu.com/360-cards-36-packs-in-a-box-themes-evolution-hidden--sword-and-shield-sun-and-moon--cards-collectible-cards-anime-peripherals-small-gifts-christmas-gifts-birthday-gifts-friend-gifts-holiday-gifts-g-601101792650926.html?_oak_name_id=8538250663864561570&_oak_mp_inf=EK7NzNau1ogBGiAxYWQ3MzYxNjEwNzA0ZjRhYjNmNGUzNTY5NTUxMmQ0MSDgodvWgDM%3D&top_gallery_url=https%3A%2F%2Fimg.kwcdn.com%2Fproduct%2Fopen%2Fcee331be916b46798eae15b181cf3158-goods.jpeg&spec_gallery_id=203592853754&refer_page_sn=10009&refer_source=0&freesia_scene=2&_oak_freesia_scene=2&_oak_rec_ext_1=MTc3Ng&_oak_gallery_order=385570985%2C222718839%2C1661665679%2C1733582306%2C2020508882&search_key=pokemon%20cards&refer_page_el_sn=200049&refer_page_name=search_result&refer_page_id=10009_1752528492098_pi9dzq3yff&_x_sessn_id=p347nb9ezd)
