@@ -6,7 +6,6 @@
 * [REALLY want](https://www.amazon.com/gp/product/B0CLTXXND8/ref=ox_sc_act_title_11)
 * [Helmet](https://www.amazon.com/gp/product/B0BNPSRYZ2/ref=ox_sc_act_title_12)
 * [Football cards](https://www.amazon.com/gp/product/B00KTARJKU/ref=ox_sc_act_title_2)
-	Pokemon cards:
 * [Pokemon Cards](https://www.amazon.com/gp/product/B09Y3YT57P/ref=ox_sc_act_title_11)
 * [Pokemon Cards Again (Please get)](https://shinyvert.com/shop-all/p/pokemon-mystery-slab-poke-tier)
 * [Good Stuff](https://shinyvert.com/shop-all/p/sir-god-pack)
