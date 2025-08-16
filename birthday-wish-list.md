@@ -7,6 +7,6 @@
 * [Helmet](https://www.amazon.com/gp/product/B0BNPSRYZ2/ref=ox_sc_act_title_12)
 * [Football cards](https://www.amazon.com/gp/product/B00KTARJKU/ref=ox_sc_act_title_2)
 * [Pokemon Cards](https://www.amazon.com/gp/product/B09Y3YT57P/ref=ox_sc_act_title_11)
-* [Pokemon Cards Again (Please get)](https://shinyvert.com/shop-all/p/pokemon-mystery-slab-poke-tier)
 * [More Pokemon cards](https://www.amazon.com/gp/product/B0DTGVK19J/ref=ox_sc_act_title_6)
 * [Jap. Pokemon cards](https://www.amazon.com/gp/product/B0D81JCZHY/ref=ox_sc_act_title_1)
+* [binder](https://www.ebay.com/itm/167703366420?)
